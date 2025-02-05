@@ -5,6 +5,7 @@
 - Looking forward to build a team and attend CREATIVE WORKFLOW : AI HACKATHON. Interested members reach me out :)
 - 💞️ I’m looking to collaborate on Data Science and ML projects
 - ⚡ Fun fact: If you're into hikes and conferences, count me in.
+- reach me at: au.sai2024@gmail.com
 
 <!---
 SwethaNam22/SwethaNam22 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
